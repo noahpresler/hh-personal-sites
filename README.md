@@ -71,6 +71,7 @@ https://www.facebook.com/groups/hackathonhackers/permalink/845765672145586/
 - Jessica Chang http://jessmchang.com
 - Jing Xiao http://www.notajingoist.com/index.html
 - Joe Duncko http://joeduncko.com/
+- Joe Ferrucci http://joeferrucci.info/
 - Jonathan Almeida http://jonalmeida.com
 - Jonny Krysh http://www.jonnykrysh.com
 - Jordan Arnesen www.byjor.com
